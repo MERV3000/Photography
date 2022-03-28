@@ -1,3 +1,3 @@
 # Photography
 
-A collection of photographs taken while travelling and at home
+A collection of photographs taken while traveling and at home
